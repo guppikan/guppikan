@@ -7,4 +7,4 @@
 - 💬 Ask me about  QA Automation
 - 📫 How to reach me:Twitter -@guppikan
 - 😄 Pronouns: Hi/Hello
-- ⚡ Fun fact: Intrested in Reading book
+- ⚡ Fun fact: Knowing is Unknowing and Unknowing is Knowing
