@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on AWS
 - 🤔 I’m looking for help with Devops practice
 - 💬 Ask me about  QA Automation
-- 📫 How to reach me:Twitter -@guppikan83
+- 📫 How to reach me:Twitter -@guppikan
 - 😄 Pronouns: Hi/Hello
 - ⚡ Fun fact: Intrested in Reading book
