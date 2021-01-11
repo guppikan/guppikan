@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on AWS
 - 🤔 I’m looking for help with Devops practice
 - 💬 Ask me about  QA Automation
-- 📫 How to reach me:Twitter -@guppikan
+- 📫 To know more about me : twitter.com/guppikan
 - 😄 Pronouns: Hi/Hello
 - ⚡ Fun fact: Knowing is Unknowing and Unknowing is Knowing
